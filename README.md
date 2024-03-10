@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BestFirefoxuser
+- 👋 Hi, I’m @BestFirefoxUser
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning IT
 - 📫 How to reach me. My discord is mythicallegendary
